@@ -200,3 +200,5 @@ William V. Fullerton
 ---
 
 *"Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case, the idea is quite staggering."* - Arthur C. Clarke
+*"The universe is a pretty big place. If it's just us, seems like an awful waste of space." - Carl Sagan
+*"Ancient Astronaut theorists say yes!" - Giorgio A. Tsoukalos
